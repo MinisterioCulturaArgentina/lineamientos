@@ -1,3 +1,3 @@
 # lineamientos
 
-Lineamiento Ministerio Cultura Nación
+Lineamientos Ministerio Cultura Nación
